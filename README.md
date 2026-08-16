@@ -1,3 +1,3 @@
-https://lucienifer.straw.page (looks trash on mobile)
+straw is currently being remade
 
 https://pronouns.page/@2d-3
